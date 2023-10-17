@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @MikulaJan
-- 👀 I’m interested in C#, Unity3D Developement
-- 🌱 I’m currently learning .NET Networking
-- 💞️ I’m looking to collaborate on anything .NET
-- 📫 How to reach me? Add me on discord Sapphire#4635
+🌟 Will + IT = ∞ effort | 
+Living in the now 🧘 | 
+Universe, Programming, 
+and Game Dev enthusiast 🌌🎮 | 
+Elevating humanity to a heavenly Earth 🌍.
